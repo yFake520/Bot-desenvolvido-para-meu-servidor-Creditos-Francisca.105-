@@ -1,1 +1,1 @@
-# Bot-desenvolvido-para-meu-servidor-Creditos-Francisca.105-
+Bot desenvolvido para meu servidor (Creditos: Francisca.105)
